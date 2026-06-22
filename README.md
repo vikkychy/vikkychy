@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Binayak Chaudhary
-**Full Stack Developer || From Kailali Nepali**
+**Full Stack Developer || From Kailali Nepal**
 
 Email Me 👉 ✉️ **vikkychy4@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
