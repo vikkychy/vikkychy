@@ -1,5 +1,5 @@
-# 💫 Hi 👋, I'm Imran Alam
-**Full Stack Developer || Kafka Admin from India**
+# 💫 Hi 👋, I'm Binayak Chaudhary
+**Full Stack Developer || From Kailali Nepali**
 
 Email Me 👉 ✉️ **vikkychy4@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
